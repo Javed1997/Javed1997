@@ -1,4 +1,4 @@
-🔭 I’m working as a Lead at Irunwat India Pvt Ltd.
+🔭 I’m working as a Lead at Aeren IT Solutions Pvt Ltd.
 
 🌱 Exploring Technical & Data Manipulations.
 
